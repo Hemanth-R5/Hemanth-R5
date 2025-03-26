@@ -1,4 +1,4 @@
-# 💫 Hi👋,I'm Hemanth R_:
+# 💫 Hi👋,I'm Hemanth R:
 Iam a Developer
 
 
